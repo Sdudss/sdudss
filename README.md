@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![](https://media.tenor.com/0ixFBOpAb4AAAAAC/cassio-lip-pout.gif)
+
 <!--
 **Sdudss/sdudss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
