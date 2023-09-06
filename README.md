@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![](https://tenor.com/bgjRy.gif)
+![](https://tenor.com/pt-BR/view/billie-eilish-cute-smile-wink-pretty-gif-16243590)
 
 <!--
 **Sdudss/sdudss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
